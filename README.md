@@ -1,1 +1,1 @@
-# Assignment-Submission-Day-2
+i submitted the given problem using 3 wa
